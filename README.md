@@ -1,6 +1,6 @@
 - 👋 olá meu nome é @mariaeduarda14072005
 - 👀 Estudo no colégio Santa Maria goretti,estou no primeiro 1:D
-- 🌱 Eu travalho no hospital,no setor administrativo 
+- 🌱 Eu trabalho no hospital,no setor administrativo 
 - 💞️ Meu estado civil é solteira 
 - 📫 Meu signo é canceariana,sou uma pessoa extrovertida,
  de manhã tenho aulas de computação de terça e quinta com o professor Ernandes,
